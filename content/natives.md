@@ -1,0 +1,77 @@
+bee friendly bangalore natives:
+-   Gmelina arborea: Beechwood tree
+-   Shorea roxburghii: Sal tree
+-   Butea monosperma: Flame of the forest
+-   Buchanania lanzan: Chironji tree
+-   Holarrhena antidysenterica: Kurchi tree
+-   Ixora pavetta: White Ixora
+-   Cochlospermum religiosum: Golden silk tree
+-   Gardenia latifolia: Ceylon gardenia
+-   Pterocarpus marsupium: Indian kino tree
+-   Lagerstroemia parviflora: White crepe myrtle
+-   Lagerstroemia microcarpa: Burma crepe myrtle
+-   Madhuca indica: Indian butter tree
+-   Grewia spp.: Crossberry
+-   Chloroxylon swietenia: East Indian satinwood
+-   Dolichandrone atrovirens: Purple bell vine
+-   Dolichandrone falcata: Medusa tree
+
+Natives that are not planted much - 
+-   Albizia odoratissima: Black siris
+-   Pterocarpus marsupium: Indian kino tree
+-   Tarenna asiatica: Asiatic tarenna
+-   Shorea roxburghii: Sal tree
+-   Terminalia chebula: Chebulic myrobalan
+-   Mitragyna parviflora: Kra thum khok
+-   Butea monosperma: Flame of the forest
+-   Buchanania lanzan: Chironji tree
+-   Cassine glauca: Osmanthus
+-   Careya arborea: Wild guava
+-   Diospyros melanoxylon: Indian ebony
+-   Vitex altissima: Tall chaste tree
+-   Lagerstroemia parviflora: White crepe myrtle
+-   Ziziphus mauritiana: Indian jujube
+-   Vitex pubescens: Small chaste tree
+-   Lagerstroemia microcarpa: Burma crepe myrtle
+-   Cipadessa baccifera: Cupid's shaving brush
+-   Holarrhena antidysenterica: Kurchi tree
+-   Madhuca indica: Indian butter tree
+-   Terminalia bellirica: Beleric myrobalan
+-   Bridelia retusa: Indian cherry
+-   Memecylon umbellatum: Ironwood
+-   Givotia rottleriformis: Givotia
+-   Grewia spp.: Crossberry
+-   Breynia vitis-ideae: Snowbush
+-   Ixora pavetta: White ixora
+-   Terminalia paniculata: West Indian almond
+-   Cordia myxa: Assyrian plum
+-   Strychnos potatorum: Clearing-nut tree
+-   Chloroxylon swietenia: East Indian satinwood
+-   Erythrina suberosa: Indian coral tree
+-   Canthium diccocum: Indian bird cherry
+-   Dolichandrone atrovirens: Purple bell vine
+-   Mundulea sericea: Cork bush
+-   Maytenus senegalensis: Bikha
+-   Acacia leucophloea: White-barked acacia
+-   Wrightia tinctoria: Sweet indrajao
+-   Anogeissus latifolia: Axlewood
+-   Albizia amara: White siris
+-   Catunaregam spinosa / Randia spinosa: Spiny gardenia
+-   Premna tomentosa: Purple fruited pea eggplant
+-   Sterculia urens: White dammar
+-   Bauhinia tomentosa: Yellow bauhinia
+-   Morinda pubescens: Pubescent noni
+-   Dalbergia paniculata: East Indian rosewood
+-   Cochlospermum religiosum: Golden silk tree
+-   Hardwickia binata: Anjan tree
+-   Gyrocarpus americanus: American gyroscope tree
+-   Gardenia latifolia: Ceylon gardenia
+-   Acacia conchinnia: Willow-leaved acacia
+-   Acacia planifrons: Australian bower plant
+-   Gardenia gummifera: Indian gardenia
+-   Vitex altissima: Tall chaste tree
+-   Capparis sepiaria: Wild caper
+-   Alangium salvifolium: Ankol tree
+
+
+[Ananas nursery](https://ananas.design/nursery) is great for native plants
