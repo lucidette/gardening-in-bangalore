@@ -4,6 +4,8 @@ title: Getting Started with Gardening in Bangalore
 
 All the information I am collating here is about small plot gardening in Bangalore, India
 
+![[Pasted image 20250101122351.png]]
+
 - [[Soil Information]]
 - [[Fertiliser Information]]
 - [[Shopping sources]]
