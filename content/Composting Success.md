@@ -1,0 +1,5 @@
+- Basic guide: 
+- Using this composting kit from Ugaoo
+- Key to success - lots of browns (newspaper shredded works fine)
+- Greens - no 
+- Grind your eggshells well

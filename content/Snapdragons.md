@@ -1,0 +1,7 @@
+- Also known as antirrhiums. 
+- Don't like temperatures above 35C. 
+- Should grow to flower quickly from seeds (3-4 months). Though in Bangalore there's one mention that it [may only bloom in the second year](https://bangaloremirror.indiatimes.com/opinion/you/snapdragons-antirrhini-ummajus-digoxin/articleshow/45404208.cms)
+- Likes moisture
+- Pinch off when seedlings are about 6 inches tall
+- You can save dried seed pods for next season
+- When cutting for flowers, cut really low down and they send up more flowers. Cut for flowers before seed pods start to form

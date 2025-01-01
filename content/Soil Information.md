@@ -1,5 +1,5 @@
 
-
+---
 
 A sedimentation test offers a more precise method for determining soil texture. The process involves:
 
@@ -14,10 +14,10 @@ A sedimentation test offers a more precise method for determining soil texture. 
 
 The resulting percentages can be used with a soil texture triangle to classify the soil type. For example, 70% sand, 20% silt, and 10% clay indicates sandy loam, while 50% sand, 20% silt, and 30% clay suggests clay loam.
 
-> Building Soils Naturally: Innovative Methods For Organic Gardeners
+> Building Soils Naturally : Innovative Methods For Organic Gardeners
 
 
-
+---
 Soil profile of Bangalore
 
 [[clay soil]]
